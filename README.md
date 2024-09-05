@@ -2,7 +2,7 @@
 - 👀 I’m interested in I.T.
 - 🌱 I’m currently learning Cybersecurity
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...rob.carr717@gmail.com
+- 📫 How to reach me: rob.carr717@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
